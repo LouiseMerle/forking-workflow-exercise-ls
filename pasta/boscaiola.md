@@ -9,6 +9,7 @@
 - mushrooms
 - onions
 - chilii
+- salt
 
 
 ## Instructions

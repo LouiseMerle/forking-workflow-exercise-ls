@@ -3,17 +3,17 @@
 
 ## Ingredients
 
-- **4 cups** mixed greens (such as arugula, spinach, and romaine)
-- **1/2 cup** cherry tomatoes, halved
-- **1/4 cup** sliced cucumbers
-- **14 cup** shredded carrots
-- **1/4 cup** toasted nuts (almonds, walnuts, or pecans), optional
-- **1/4 cup** crumbled feta or goat cheese, optional
+- **4 cups**/**950 ml ** mixed greens (such as arugula, spinach, and romaine)
+- **1/2 cup**/**118 ml** cherry tomatoes, halved
+- **1/4 cup**/**60 ml** sliced cucumbers
+- **1/4 cups**/**60 ml** shredded carrots
+- **1/4 cup**/ **60 ml** toasted nuts (almonds, walnuts, or pecans), optional
+- **1/4 cup**/**60 ml** crumbled feta or goat cheese, optional
 
 
 ## For the lemon vinaigrette
 
-- **1/4 cup** extra virgin olive oil
+- **1/4 cup**/**60 ml** extra virgin olive oil
 - **2 tablespoons** fresh lemon juice
 - **1 teaspoon** honey or maple syrup (adjust to taste)
 - **1 small clove** garlic, minced
