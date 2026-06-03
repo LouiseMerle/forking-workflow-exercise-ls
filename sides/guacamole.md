@@ -13,6 +13,7 @@
 
 ## Instructions
 
+- buy all ingredients in the supermarket
 - finely mash the avocados
 - cut coriander
 - finely mash the onion
