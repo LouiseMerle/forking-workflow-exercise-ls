@@ -14,7 +14,7 @@
 ## Instructions
 
 - buy all ingredients in the supermarket
-- finely mash the avocados
+- finely hammer the avocados to mush
 - cut coriander
 - finely mash the onion
 - chop chili 
