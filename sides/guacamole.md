@@ -13,10 +13,11 @@
 
 ## Instructions
 
-- chop avocados
-- chop onion
-- chop chili
-- squeeze lime
+- finely mash the avocados
+- cut coriander
+- finely mash the onion
+- chop chili 
+- squeeze lime in to the mashed avocados
 - add salt
 - and mix well
 - enjoy!
